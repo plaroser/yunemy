@@ -22,7 +22,7 @@
 3. Echamos la leche y el aceite y mezclamos bien
 4. Añadimos el chocolate y la vainilla, y mezclamos de nuevo
 5. Pon tu taza en el microondas y cocina 3 minutos a 1000 vatios (alto)
-6. Sacamos la taza del microondas y echamos más trocitos de chocolate por encima
+6. Sacamos la taza del microondas y echamos más trocitos de canela por encima
 7. Dejamos enfriar un poco, y listo!
 
 [FUENTE RECETA](https://www.pequerecetas.com/receta/bizcocho-microondas/)
