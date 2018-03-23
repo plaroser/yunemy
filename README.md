@@ -13,7 +13,8 @@
   *  3 cucharadas de aceite
   *  1/4 de taza de trozos de chocolate (más o menos grandes)
   *  1 chorro pequeño de extracto de vainilla
-
+  
+++++++
 ## Cómo hacer el bizcocho microondas o Mug cake en 3 minutos:
 
 1. Agregamos los ingredientes secos a la taza y mezclamos bien
